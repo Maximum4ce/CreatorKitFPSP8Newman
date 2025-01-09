@@ -1,0 +1,2 @@
+# CreatorKitFPSP8Newman
+cREATING A REPO FOR MY PROJECT 
